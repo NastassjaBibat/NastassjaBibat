@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @NastassjaBibat a BS Statistics student currently taking Computer Science as my elective track.
+- 📫 You can reach me through my email: nrbibat1@up.edu.ph
